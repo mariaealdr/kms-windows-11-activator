@@ -1,0 +1,1 @@
+# kms-windows-11-activator
